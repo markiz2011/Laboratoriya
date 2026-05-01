@@ -1,10 +1,1 @@
-[6-lobartoriya (2) (2).docx](https://github.com/user-attachments/files/27268847/6-lobartoriya.2.2.docx)
-[Laboratoriya ishi 12.docx](https://github.com/user-attachments/files/27268846/Laboratoriya.ishi.12.docx)
-[Laboratoriya ishi 13.docx](https://github.com/user-attachments/files/27268845/Laboratoriya.ishi.13.docx)
-[Laboratoriya ishi 15.docx](https://github.com/user-attachments/files/27268844/Laboratoriya.ishi.15.docx)
-[Laboratoriya ishi 14.docx](https://github.com/user-attachments/files/27268843/Laboratoriya.ishi.14.docx)
-[Laboratoriya ishi 11.docx](https://github.com/user-attachments/files/27268842/Laboratoriya.ishi.11.docx)
-[LABORATORIYA ISHI10 (3).docx](https://github.com/user-attachments/files/27268841/LABORATORIYA.ISHI10.3.docx)
-[Laboratoriya ishi 9 (2) (2).docx](https://github.com/user-attachments/files/27268840/Laboratoriya.ishi.9.2.2.docx)
-[8-LABORATORIYA ISHI.docx](https://github.com/user-attachments/files/27268839/8-LABORATORIYA.ISHI.docx)
-[7-LABORATORIYA ISHI (3).docx](https://github.com/user-attachments/files/27268838/7-LABORATORIYA.ISHI.3.docx)
+
